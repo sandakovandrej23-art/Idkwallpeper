@@ -1,2 +1,0 @@
-# Idkwallpeper
-Hhehehe
